@@ -3,6 +3,7 @@ i want to introducing my self :)
 
 My name is  **Jay Davinci**.\
 Study at **Telkom University** 
+<br>
 take a S1 System Infromation Major
 
 
