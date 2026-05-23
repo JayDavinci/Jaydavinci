@@ -1,5 +1,5 @@
 # 💫 About Me:
-Holaaa im Jay !<br>📫 How to reach me jaydavinciii11@gmail.com<br>🎓️ Studying at Telkom University<br>🤝 Connect with me on Linkedin: https://www.linkedin.com/in/jaydavinci
+Holaaa im Jay !<br>🎓️ Studying at Telkom University🤝
 
 
 ## 🌐 Socials:
